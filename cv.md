@@ -1,6 +1,6 @@
 1.**Ivan Piskun**
 
-2.Contacts:\
+2.Contact:\
 phone +375291321139\
 email vanpiskun@gmail.com
 
